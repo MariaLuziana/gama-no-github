@@ -1,0 +1,1 @@
+O curso gama academy full stack tem sido maravilhoso. Aulas com conteúdos e metodologia aplicada de fácil absorção. Alinha a teoria e prática. Perfeito!
